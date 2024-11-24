@@ -4,7 +4,8 @@ check out my straw page https://banhammerswife.straw.page
   - romantic homicide system
   - 15 bodily , 14+ only ( 13 is iffy , 12 & under will be blocked on sight )
   - they/them if reffering to body or us in general .
-  - diagonsed with udd , bpd , dyslexia & more .
+  - diagonsed with udd , c-ptsd , bpd , dyslexia & more .
+  - ( ^ if u fakeclaim js know i have diagnosises of everything i claim to have)
   - we can be extremely hostile to those we dk SORRY LMFAO
 
 - ponytown boundaries .
@@ -15,18 +16,17 @@ check out my straw page https://banhammerswife.straw.page
   - i dont do " make my pony " things .
   - dont pry for alter info .
   - dont treat our fictives/introjects like source .
-  - 18+ can int just dont be weird . ( this goes for every1 . )
+  - 18+ can int just dont be weird . ( this goes for every1 in general tho. )
   - we are a non sharing fictosexual/yumeshipper of 6 characters
-  - ^ if a char has "my husband/wife" it is one of our yumes .
   - please do not say you're a bigger fan of our yumes .
   - we block typing quirk users on sight (not sry we're dyslexic)
 
 - main interests .
   - 
-   - **pressure** , our hyperfix .
+   - pressure
    - ultrakill .
-   - the days union .
+   - the days union . ( old&arg )
    - regretevator .
-   - phighting , iwc if ur a p! fan thanks .
+   - phighting , iwc if ur a p! fan unls friend thanks .
    - the amazing digital circus .
-   - we're in many other fandoms , these are just main interests .
+   - we're in MAY other fandoms , these are just main interests .
