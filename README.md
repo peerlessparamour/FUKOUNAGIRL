@@ -7,4 +7,5 @@
 - -14 is blocked on sight
 - usually you'll see me with my plat husband
 - dont treat our fictives like source thanks
+- plat husband made my profile, dont use mine bc i genuinely will maul you
 - https://banhammerswife.straw.page
