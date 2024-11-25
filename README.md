@@ -1,32 +1,10 @@
-check out my straw page https://banhammerswife.straw.page
-- about us .
-  - 
-  - romantic homicide system
-  - 15 bodily , 14+ only ( 13 is iffy , 12 & under will be blocked on sight )
-  - they/them if reffering to body or us in general .
-  - diagonsed with udd , c-ptsd , bpd , dyslexia & more .
-  - ( ^ if u fakeclaim js know i have diagnosises of everything i claim to have)
-  - we can be extremely hostile to those we dk SORRY LMFAO
-
-- ponytown boundaries .
-  - 
-  - dont cover .
-  - dont copy or take inspo unless we give u perms .
-  - preferably w2i unless we're on tab .
-  - i dont do " make my pony " things .
-  - dont pry for alter info .
-  - dont treat our fictives/introjects like source .
-  - 18+ can int just dont be weird . ( this goes for every1 in general tho. )
-  - we are a non sharing fictosexual/yumeshipper of 6 characters
-  - please do not say you're a bigger fan of our yumes .
-  - we block typing quirk users on sight (not sry we're dyslexic)
-
-- main interests .
-  - 
-   - pressure
-   - ultrakill .
-   - the days union . ( old&arg )
-   - regretevator .
-   - phighting , iwc if ur a p! fan unls friend thanks .
-   - the amazing digital circus .
-   - we're in MANY MANY MAANY other fandoms , these are just main interests .
+- hi im charlotte
+- she/they is ok , she/her heavy pref tho
+- im a system of 14
+- im a lesbian with a beauty of a girlfriend
+- im dyslexic and use a screen reader
+- tq users are blocked on sight yall are so fucking annoying pls translate what ur saying for crying out loud yall pmo god forbid ppl use a screen reader LMFAO
+- -14 is blocked on sight
+- usually you'll see me with my plat husband
+- dont treat our fictives like source thanks
+- https://banhammerswife.straw.page
